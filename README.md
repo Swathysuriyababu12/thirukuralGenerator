@@ -4,3 +4,4 @@ The Tirukkuṟaḷ (Tamil: திருக்குறள், lit. 'sacred ver
 or kurals, of seven words each.
 The text is divided into three books with aphoristic teachings on virtue (aram), wealth (porul) and love (inbam), respectively.
 </p>
+<a href="https://serene-hamster-74e6ed.netlify.app/"></a>
